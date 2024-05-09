@@ -29,7 +29,7 @@
 
 ✅Imagens geradas via Copilot/Designer
 
-👩‍💻 Expert
+
 --
 👩‍🎓Júlia Lopes [Linkedln](https://www.linkedin.com/in/julia-lopes-53a341185/)    [Instagram](julialopes494)
 
